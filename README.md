@@ -6,9 +6,6 @@
 И люблю репчину старой школы.
 А так же безума от шоколадных тортов!
 
-C:\Users\korsh\Desktop\0ca458b5fda040a2a0d75efff64b8cc5.jpg
 
-
-
-
+![0ca458b5fda040a2a0d75efff64b8cc5](https://github.com/user-attachments/assets/abd6f7d4-fc87-4536-96f0-da6abce54f41)
 
